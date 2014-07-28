@@ -139,14 +139,18 @@ Duración: 03/ 2007 al 06 / 2008
 Cargo: Diseñador
 
 Diseñar y elaborar pautas para los diversos clientes de la empresa en cuanto a publicaciones impresas,6 ediciones para la revista RODOVIAS NEWS de www.rodovias.com así como Galerías Ávila, y el Grupo Sambil.
+
 Contacto
 ========
+
 Si le interesa mi perfil para un puesto de trabajo o un desarrollo Freelance no dude en contactarme.
 
-Telefonos:
+Telefonos
+=========
+
 +58 412 - 2301922 / 416 - 6252002
 
 +58 212 - 5001934
---- Readme en Elaboracion ---
+
 
 
